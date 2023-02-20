@@ -24,8 +24,8 @@ Their latest song is 'OMG' released in Jan 2023.
 - New Jeans (1st EP, released in 08.01.2022)
 
   Track list
-  1. Attention
-  2. Hype Boy
+  1. [Attention](https://youtu.be/kdOS94IjzzE)
+  2. [Hype Boy](https://youtu.be/ghrlZIMDzbM)
   3. Cookie
   4. Hurt
 
