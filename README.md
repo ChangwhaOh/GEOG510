@@ -13,6 +13,13 @@ Their latest song is 'OMG' released in Jan 2023.
 ### Cover Image
 ![](images/nj_omg_2.jpg)
 
+#### Members
+- Minji
+- Hanni
+- Danielle
+- Haerin
+- Hyein
+
 ### Albums
 - New Jeans (1st EP, released in 08.01.2022)
 
