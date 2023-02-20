@@ -26,16 +26,16 @@ Their latest song is 'OMG' released in Jan 2023.
   Track list
   1. [Attention](https://youtu.be/kdOS94IjzzE)
   2. [Hype Boy](https://youtu.be/ghrlZIMDzbM)
-  3. Cookie
-  4. Hurt
+  3. [Cookie](https://youtu.be/0M4QMVQJRsw)
+  4. [Hurt](https://youtu.be/8QWtOgBJZNc)
 
 - Ditto (Pre-single, released in 12.19.2022)
 
 - OMG (1st Single, released in 01.02.2023)
 
   Track list
-  1. OMG
-  2. Ditto
+  1. [OMG](https://youtu.be/2Kff0U8w-aU)
+  2. [Ditto](https://youtu.be/V6TEcoNUmc8)
 
 ### Music Video
 Click image below to watch OMG music video
